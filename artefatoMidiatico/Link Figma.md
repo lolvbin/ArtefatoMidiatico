@@ -1,0 +1,1 @@
+https://www.figma.com/design/blNJ4xqsbho9JUpfMS801X/Artefato-Midiatico---Artigo?node-id=0-1&t=9wUlDktdX0OKNt05-1
